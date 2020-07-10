@@ -1,0 +1,1 @@
+A qualidade dos materiais é muito boa. As primeiras aulas foram bem promissoras.
